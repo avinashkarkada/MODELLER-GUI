@@ -13,4 +13,4 @@ HOW TO USE:
 6. Click "RUN"
 
 
-Hope it helps :)
+FOR ACADEMIC USE ONLY. Hope it helps :)
